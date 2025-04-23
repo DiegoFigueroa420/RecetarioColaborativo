@@ -71,3 +71,10 @@ Acompañamientos:
     Tiempo total: 1 hora 30 minutos (menos si usas frijoles cocidos previamente)
 
     Porciones: 4 bandejas bien servidas
+    💡 Consejos y variantes:
+
+    Versión más ligera: Puedes usar carne de res desmechada en lugar de carne molida, o eliminar el chicharrón si prefieres menos grasa.
+
+    Toque especial: Acompáñalo con ají picante colombiano para más sabor.
+
+    Frijoles rápidos: Si no tienes tiempo, puedes usar frijoles enlatados y darles sabor con un buen hogao.
