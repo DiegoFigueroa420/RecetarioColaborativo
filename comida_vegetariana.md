@@ -38,3 +38,8 @@ Pasta vegetariana cremosa con verduras
     Agrega la pasta cocida y mezcla hasta que quede bien cubierta con la salsa cremosa.
 
     Sirve caliente, espolvoreando levadura nutricional o queso vegetal, y decora con albahaca fresca si deseas.
+    ⏲️ Tiempo de cocción y porciones:
+
+    Tiempo total: 25-30 minutos
+
+    Rinde: 4 porciones
