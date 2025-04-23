@@ -17,3 +17,6 @@
     Arma los bocaditos: coloca un trozo de queso sobre uno de bocadillo (o viceversa). Puedes usar palillos para presentarlos como pasabocas o montarlos sobre galletas o pan.
 
     Sirve fresco como entrada, postre o merienda.
+    ⏲️ Tiempo de preparación:
+
+    5 minutos
