@@ -43,3 +43,8 @@ Para la base:
     Agrega la salsa y los ingredientes de la cobertura, luego hornea 10 minutos más o hasta que el queso se derrita y los bordes estén crujientes.
 
     Retira del horno, decora con hojas frescas y un chorrito de aceite de oliva. ¡Y a disfrutar!
+    ⏲️ Tiempo de cocción y porciones:
+
+    Tiempo total: 45 minutos
+
+    Rinde: 2-3 porciones
