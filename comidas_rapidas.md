@@ -44,3 +44,11 @@ Para armar:
     Tiempo total: 25-30 minutos
 
     Rinde: 4 hamburguesas
+    💡 Consejos:
+
+    No aplastes la carne mientras se cocina, para que conserve sus jugos.
+
+    Puedes agregar panceta crujiente o un huevo frito si te gustan hamburguesas más completas.
+
+    Acompaña con papas fritas, aros de cebolla o una ensalada fresca.
+
