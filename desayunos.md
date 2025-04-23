@@ -21,3 +21,34 @@ Cóctel de frutas.
 
     Hielo (opcional)
 
+👩‍🍳 Preparación paso a paso:
+
+    Lava bien todas las frutas.
+
+        Asegúrate de que estén limpias, especialmente si conservarás la cáscara (como en la manzana).
+
+    Pela y corta las frutas.
+
+        Quita la cáscara a la banana, la naranja y la piña.
+
+        Pica todas las frutas en cubitos pequeños y parejos.
+
+    Coloca las frutas en un bowl grande.
+
+        Añade el jugo de naranja y mezcla bien.
+
+    Agrega el toque dulce (opcional).
+
+        Si las frutas no están muy dulces, puedes añadir miel o azúcar al gusto.
+
+    Añade el jugo de limón (opcional).
+
+        Esto ayuda a que frutas como la manzana o banana no se oxiden y mantengan su color.
+
+    Refrigera.
+
+        Deja el cóctel en el refrigerador durante al menos 30 minutos para que esté bien frío y los sabores se integren.
+
+    Sirve.
+
+        Puedes servir en copas, vasos o pequeños bowls. Agrega hielo si quieres que esté más refrescante.
