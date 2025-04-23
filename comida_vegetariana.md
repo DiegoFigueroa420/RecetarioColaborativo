@@ -25,3 +25,16 @@ Pasta vegetariana cremosa con verduras
 
     Albahaca fresca para decorar (opcional)
 
+👩‍🍳 Preparación paso a paso:
+
+    Cocina la pasta en agua con sal según las instrucciones del paquete. Escurre y reserva.
+
+    Sofríe el ajo en el aceite de oliva a fuego medio hasta que esté dorado.
+
+    Agrega las verduras (calabacín, zanahoria, pimiento y champiñones). Saltea por 8-10 minutos hasta que estén tiernas pero aún crujientes.
+
+    Incorpora la crema vegetal, el orégano, sal y pimienta. Cocina a fuego lento por 5 minutos, removiendo para integrar bien los sabores.
+
+    Agrega la pasta cocida y mezcla hasta que quede bien cubierta con la salsa cremosa.
+
+    Sirve caliente, espolvoreando levadura nutricional o queso vegetal, y decora con albahaca fresca si deseas.
