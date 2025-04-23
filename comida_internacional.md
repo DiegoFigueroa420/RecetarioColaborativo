@@ -57,3 +57,13 @@ Paso 2: Armar los rolls
     Tiempo total: 45-60 minutos
 
     Rinde: 4-5 rolls (aprox. 24-30 piezas)
+    💡 Consejos y variantes:
+
+    Usa arroz tibio pero no caliente para que sea más manejable.
+
+    Puedes hacer uramaki (roll invertido) colocando el arroz por fuera del alga.
+
+    Para una versión 100% vegetariana, prueba con tofu marinado, pimientos, espárragos y sésamo.
+
+    Si no tienes esterilla, puedes usar papel film sobre una tabla.
+
