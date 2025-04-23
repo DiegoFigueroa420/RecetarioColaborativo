@@ -13,3 +13,18 @@ Para la base:
     1/2 cucharadita de orégano seco
 
     1 diente de ajo picado (opcional)
+    Para la cobertura:
+
+    1/2 taza de salsa de tomate natural o casera
+
+    1/2 taza de queso mozzarella rallado (o vegano)
+
+    Tomates cherry en mitades
+
+    Champiñones en láminas
+
+    Hojas de espinaca o albahaca fresca
+
+    Aceitunas negras (opcional)
+
+    Orégano y aceite de oliva para terminar
