@@ -28,3 +28,27 @@ Para el arroz:
     Palitos de surimi o tofu – opcional para versión vegetariana
 
     Salsa de soya, wasabi y jengibre encurtido para acompañar
+    🍱 Preparación paso a paso:
+Paso 1: Preparar el arroz
+
+    Lava el arroz varias veces hasta que el agua salga clara.
+
+    Cocina el arroz con el agua (en olla arrocera o a fuego lento en olla común con tapa).
+
+    Mientras se cocina, mezcla el vinagre, azúcar y sal.
+
+    Una vez cocido, deja reposar el arroz 10 minutos y luego mezcla con el aderezo de vinagre. Deja enfriar a temperatura ambiente.
+
+Paso 2: Armar los rolls
+
+    Coloca una hoja de alga nori sobre una esterilla de bambú (cubierta con film plástico si quieres evitar que se pegue).
+
+    Extiende una capa delgada de arroz sobre el alga, dejando 1-2 cm libres en la parte superior.
+
+    Añade tus ingredientes en una línea horizontal en el centro (por ejemplo: pepino + palta + salmón).
+
+    Enrolla con cuidado usando la esterilla, presionando firmemente para formar un cilindro.
+
+    Humedece el borde libre del alga para sellar el roll.
+
+    Corta en 6-8 piezas usando un cuchillo bien afilado y mojado para que no se pegue.
