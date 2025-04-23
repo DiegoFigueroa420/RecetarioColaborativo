@@ -10,3 +10,13 @@
     Hielo al gusto
 
     1 cucharadita de jugo de limón (opcional, para resaltar el sabor)
+
+👩‍🍳 Preparación paso a paso:
+
+    Extrae la pulpa de la guanábana y retira todas las semillas. Si usas guanábana congelada, déjala descongelar un poco antes de usar.
+
+    Licúa la pulpa con el agua (o leche) y el azúcar. Licúa por 30-60 segundos hasta que esté bien mezclado.
+
+    Si deseas una textura más fina, cuela el jugo con un colador fino.
+
+    Sirve frío, con hielo si te gusta bien refrescante. Puedes añadir unas gotas de limón para un toque cítrico.
