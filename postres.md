@@ -50,3 +50,12 @@
     Refrigeración: 4 horas
 
     Porciones: 6 individuales o 1 molde familiar
+    💡 Consejos y variantes:
+
+    Versión rápida (sin gelatina): Mezcla solo la pulpa con leche condensada y crema de leche. Sirve como mousse suave, pero no se cuajará firme.
+
+    Más cremoso: Usa queso crema en lugar de crema de leche para una textura tipo cheesecake.
+
+    Topping pro: Prepara un sirope con pulpa de maracuyá y azúcar para colocar encima al servir.
+
+    Sin licuadora: Puedes mezclar todo manualmente si usas pulpa sin semillas.
