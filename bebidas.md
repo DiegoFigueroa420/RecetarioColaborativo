@@ -20,3 +20,7 @@
     Si deseas una textura más fina, cuela el jugo con un colador fino.
 
     Sirve frío, con hielo si te gusta bien refrescante. Puedes añadir unas gotas de limón para un toque cítrico.
+
+⏲️ Tiempo total:
+
+    5-10 minutos
