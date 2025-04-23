@@ -60,3 +60,12 @@ Para acompañar:
     Tiempo total: 25–30 minutos
 
     Porciones: 4 burritos grandes
+    💡 Consejos y variantes:
+
+    Versión spicy: Agrega jalapeños picados o usa salsa picante en el relleno.
+
+    Versión con vegetales: Añade espinacas, champiñones o calabacín para una versión más saludable.
+
+    Congelar: Puedes hacer varios y congelarlos. Solo calienta en el microondas o sartén cuando los necesites.
+
+    Queso extra: ¡No te limites con el queso si eres fan! También puedes usar queso crema mezclado con el pollo.
