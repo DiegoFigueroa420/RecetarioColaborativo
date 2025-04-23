@@ -52,3 +52,8 @@ Cóctel de frutas.
     Sirve.
 
         Puedes servir en copas, vasos o pequeños bowls. Agrega hielo si quieres que esté más refrescante.
+        ⏱️ Tiempo de preparación y porciones:
+
+    Tiempo total: 15 minutos + 30 minutos de refrigeración (opcional)
+
+    Rinde: 4 porciones
