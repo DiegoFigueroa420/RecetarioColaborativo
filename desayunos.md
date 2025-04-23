@@ -1,4 +1,4 @@
-Cóctel de frutas.
+Cóctel de frutas...
 
 🥭🍓 CÓCTEL DE FRUTAS – PASO A PASO 🍍🍇
 🛒 Ingredientes (puedes ajustar según tus gustos o lo que tengas en casa):
