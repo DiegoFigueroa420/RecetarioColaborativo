@@ -52,3 +52,8 @@ Paso 2: Armar los rolls
     Humedece el borde libre del alga para sellar el roll.
 
     Corta en 6-8 piezas usando un cuchillo bien afilado y mojado para que no se pegue.
+    ⏲️ Tiempo de preparación y porciones:
+
+    Tiempo total: 45-60 minutos
+
+    Rinde: 4-5 rolls (aprox. 24-30 piezas)
