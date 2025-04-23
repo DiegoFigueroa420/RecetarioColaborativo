@@ -43,3 +43,10 @@
     Decora y sirve:
 
         Justo antes de servir, decora con un poco de pulpa de maracuyá (con semillas), hojitas de menta o ralladura de limón para un toque fresco.
+        ⏱️ Tiempo de preparación y porciones:
+
+    Tiempo activo: 15 minutos
+
+    Refrigeración: 4 horas
+
+    Porciones: 6 individuales o 1 molde familiar
