@@ -55,3 +55,8 @@ Para acompañar:
     Sirve caliente:
 
         Acompaña con guacamole, crema agria, o la salsa que más te guste.
+        ⏱️ Tiempo de preparación y porciones:
+
+    Tiempo total: 25–30 minutos
+
+    Porciones: 4 burritos grandes
