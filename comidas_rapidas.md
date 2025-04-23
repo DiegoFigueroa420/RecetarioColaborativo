@@ -38,3 +38,9 @@ Para armar:
     Tuesta los panes: Abre los panes y tuéstalos ligeramente en la sartén o tostadora.
 
     Arma tu hamburguesa: Coloca la carne sobre la base del pan, agrega queso, lechuga, tomate, cebolla, pepinillos y las salsas que prefieras. Cubre con la otra mitad del pan.
+
+⏲️ Tiempo de cocción y porciones:
+
+    Tiempo total: 25-30 minutos
+
+    Rinde: 4 hamburguesas
