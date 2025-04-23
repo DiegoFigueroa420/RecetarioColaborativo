@@ -57,3 +57,13 @@ Cóctel de frutas.
     Tiempo total: 15 minutos + 30 minutos de refrigeración (opcional)
 
     Rinde: 4 porciones
+
+💡 Consejos y variantes:
+
+    Variante tropical: Agrega mango, kiwi o coco rallado para un sabor más exótico.
+
+    Para niños: Puedes añadir un chorrito de leche condensada para un toque cremoso y dulce.
+
+    Para adultos: Un chorrito de ron blanco o vino espumante lo convierte en un cóctel festivo.
+
+    Presentación: Sirve con hojas de menta fresca, una rodaja de limón o con palitos de brocheta con frutas.
