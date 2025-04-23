@@ -28,3 +28,41 @@ Acompañamientos:
     Sal al gusto
 
     Aceite para freír
+    👨‍🍳 Preparación paso a paso:
+
+    Cocina los frijoles:
+
+        Si usas frijoles secos, déjalos en remojo desde la noche anterior. Luego cocínalos con cebolla, tomate y ajo hasta que estén suaves (aproximadamente 1 hora y media).
+
+    Prepara el arroz blanco:
+
+        Cocina el arroz tradicionalmente con agua, sal y un poco de aceite.
+
+    Fríe la carne molida:
+
+        Cocina la carne con un poco de aceite, sal, ajo y cebolla hasta que esté bien doradita.
+
+    Haz el hogao:
+
+        Sofríe cebolla larga y tomate picado con sal y comino. Cocina a fuego bajo hasta que se forme una salsa espesa.
+
+    Fríe los plátanos maduros:
+
+        Pela y corta en tajadas largas. Fríe hasta que estén dorados y caramelizados.
+
+    Fríe los chorizos y los chicharrones:
+
+        Fríe en abundante aceite caliente hasta que estén bien dorados y crujientes.
+
+    Fríe los huevos:
+
+        Haz huevos fritos con la yema blanda para servir sobre el arroz.
+
+    Calienta o prepara las arepas:
+
+        Puedes usar arepas prehechas y calentarlas, o hacerlas con masa de maíz.
+
+    Arma la bandeja:
+
+        Sirve el arroz como base. Añade los frijoles por encima. A un lado coloca la carne molida, el chicharrón, el chorizo, el huevo frito, el plátano maduro, la tajada de aguacate, el hogao y la arepa.
+
