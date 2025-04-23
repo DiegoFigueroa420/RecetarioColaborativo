@@ -66,3 +66,8 @@ Acompañamientos:
 
         Sirve el arroz como base. Añade los frijoles por encima. A un lado coloca la carne molida, el chicharrón, el chorizo, el huevo frito, el plátano maduro, la tajada de aguacate, el hogao y la arepa.
 
+⏱️ Tiempo de preparación y porciones:
+
+    Tiempo total: 1 hora 30 minutos (menos si usas frijoles cocidos previamente)
+
+    Porciones: 4 bandejas bien servidas
