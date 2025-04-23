@@ -8,3 +8,12 @@
     Galletas saladas o pan (opcional, para servir)
 
     Palillos (si quieres servirlo como bocaditos)
+    👨‍🍳 Preparación paso a paso:
+
+    Corta el bocadillo en rebanadas o cubos pequeños (de unos 2 cm si es para bocaditos).
+
+    Corta el queso en trozos del mismo tamaño que el bocadillo.
+
+    Arma los bocaditos: coloca un trozo de queso sobre uno de bocadillo (o viceversa). Puedes usar palillos para presentarlos como pasabocas o montarlos sobre galletas o pan.
+
+    Sirve fresco como entrada, postre o merienda.
