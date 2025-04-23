@@ -20,3 +20,11 @@
     ⏲️ Tiempo de preparación:
 
     5 minutos
+    💡 Consejos y variantes:
+
+    Puedes calentar ligeramente el bocadillo para que quede más suave y se derrita un poco con el queso.
+
+    Si quieres algo más gourmet, prueba con queso crema y bocadillo derretido sobre tostadas.
+
+    También puedes hacer empanadas, pastelitos o rollitos de hojaldre rellenos de bocadillo con queso para una versión horneada.
+
