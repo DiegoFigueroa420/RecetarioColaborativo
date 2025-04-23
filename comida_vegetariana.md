@@ -43,3 +43,12 @@ Pasta vegetariana cremosa con verduras
     Tiempo total: 25-30 minutos
 
     Rinde: 4 porciones
+💡 Consejos o variantes:
+
+    Puedes añadir espinacas, brócoli o berenjena si quieres más variedad de vegetales.
+
+    Para una versión con proteína, agrega tofu dorado o garbanzos cocidos.
+
+    Si prefieres una salsa tipo pesto, cambia la crema vegetal por pesto vegano casero.
+
+    La levadura nutricional le da un sabor similar al queso, ideal para quienes siguen una dieta vegana.
