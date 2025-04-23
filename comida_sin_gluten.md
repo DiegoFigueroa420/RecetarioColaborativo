@@ -48,3 +48,12 @@ Para la base:
     Tiempo total: 45 minutos
 
     Rinde: 2-3 porciones
+    💡 Consejos o variantes:
+
+    Puedes hacer mini pizzas con la misma masa.
+
+    Añade tofu marinado o seitán para más proteína vegetal.
+
+    Usa salsa pesto o hummus como base en lugar de salsa de tomate para variar.
+
+    Si no consumes huevo, puedes reemplazarlo por una "chia egg" (1 cda de chía + 3 cdas de agua, reposada 10 min).
