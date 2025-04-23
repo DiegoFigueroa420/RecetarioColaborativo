@@ -24,3 +24,10 @@
 ⏲️ Tiempo total:
 
     5-10 minutos
+    💡 Consejos y variantes:
+
+    Si prefieres una textura tipo batido, usa más pulpa y leche (queda cremosísimo).
+
+    También puedes añadir un toque de vainilla o canela para un sabor más dulce y aromático.
+
+    Para una versión más tropical, mezcla con un poco de piña o mango.
